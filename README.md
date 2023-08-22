@@ -2,7 +2,7 @@
 Bem vindo ao meu GitHub 👩‍🏫 
 
 - 🌱 Estudante de Análise e Desenvolvimento de Sistemas
-- 💻 Estou em busca do primeiro emprego na área de tecnologia  
+- 💻 Estagiária 
 - 📧 Contate-me no email: nataliafsoficial@gmail.com
 - A não esquece de dar uma olhada no meu linkedin 🔗 https://www.linkedin.com/in/farias-natalia/
 
