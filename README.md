@@ -3,7 +3,7 @@ Bem vindo ao meu GitHub 👩‍🏫
 
 - 🌱 Estudante de Análise e Desenvolvimento de Sistemas
 - 💻 Estagiária 
-- 📧 Contate-me no email: nataliafsoficial@gmail.com
+- 📧 Contate-me no email: nataliafariassantos006@gmail.com
 - A não esquece de dar uma olhada no meu linkedin 🔗 https://www.linkedin.com/in/farias-natalia/
 
 
